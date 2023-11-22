@@ -1,7 +1,7 @@
 # app-dev
  My first repository.
 
-# H1This is my current favorite series in Anime
+# This is my current favorite series in Anime
 
 1. **Sword Art Online Series**
  - A popular Isekai to this day
