@@ -8,6 +8,7 @@
  - The First season of 2nd half is the most questionable decision & scene
  - The Second season has another questionable scene, The Yuki & Excalibur Arc is fine
  - SAO Alicization Arc should have been the first season because of progression & storytelling.
+ - SAO Progressive is the retelling of the Franchise the novel itself is very detailed, and the anime adaption has slight adjustments, especially in adding a character to have the Protagonist pursue on play the game.
   
 2. **Hyouka**
  - Animation of KyotoAnimation is a perfect fit for the series
