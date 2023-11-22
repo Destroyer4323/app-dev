@@ -6,8 +6,8 @@
 1. **Sword Art Online Series**
  - A popular Isekai to this day
  - The First season of 2nd half is the most questionable decision & scene
- - The Second season has another questionable scene except for the Yuki & Excalibur Arc
- - SAO Alicization Arc should have been the first season and another questionable in this season (referring to the Student scene...)
+ - The Second season has another questionable scene, The Yuki & Excalibur Arc is fine
+ - SAO Alicization Arc should have been the first season because of progression & storytelling.
   
 2. **Hyouka**
  - Animation of KyotoAnimation is a perfect fit for the series
